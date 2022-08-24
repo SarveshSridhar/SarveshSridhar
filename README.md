@@ -15,7 +15,6 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1m9Yazz_58hDvDSJ3Yr3PBI-aLk-A9cwC/view?usp=sharing](https://drive.google.com/file/d/1m9Yazz_58hDvDSJ3Yr3PBI-aLk-A9cwC/view?usp=sharing)
 
-- ⚡ Fun fact **I'm an introvert trying to break the shell!! :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
